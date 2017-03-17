@@ -6,3 +6,6 @@
 * 12 gram (1 msk) vaniljsocker
 * 30 gram (5 msk) kakao
 * 90 gram (1.5 dl) vetemjöl
+
+
+180 grader ~40 min keramikform.
