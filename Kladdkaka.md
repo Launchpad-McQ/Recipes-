@@ -8,4 +8,4 @@
 * 90 gram (1.5 dl) vetemjöl
 
 
-180 grader ~40 min keramikform.
+180 grader ~40 min i keramikform.
