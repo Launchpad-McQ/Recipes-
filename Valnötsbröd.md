@@ -22,7 +22,7 @@ Rör ihop, täck med lock/ folie.
 
 ## 
 1. Blanda allt utom valnötterna. Tillsätt valnötter. Låt vila 30 min.
-1. Efter vilan, dags att vika degen. Doppa handen i vatten och ta ett tag i degens kant med ena handen. Dra ut degen en aning och vik den in mot mitten.Vila 30 min.
+1. Efter vilan, dags att vika degen. Doppa handen i vatten och ta ett tag i degens kant med ena handen. Dra ut degen en aning och vik den in mot mitten. Vila 30 min.
 1. Dra och vila 30 min.
 1. Dra och vila 30 min.
 1. Dra och vila 60 min. (Blir sammanlagt 3 dragningar).
