@@ -15,4 +15,4 @@
 1. Ta löken ur pannan och lägg åt sidan.
 1. Stek skaven.
 1. Krossa enbären och blanda ihop allt.
-1. Låt puttra ett tal, tills klart. Ät med kokt potatis.
+1. Låt puttra ett tag, tills klart. Ät med kokt potatis.
