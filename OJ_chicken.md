@@ -23,6 +23,6 @@
 
 ## 
 1. Blanda OJ sås över värme tills sockret är uplöst
-1. Blanda mjölk och majsstärkelse. Skär kyckling i små bitar och häll över lite OJ sås. Doppa i mjölblandningen och fritera.
+1. Blanda mjöl och majsstärkelse. Skär kyckling i små bitar och häll över lite OJ sås. Doppa i mjölblandningen och fritera.
 1. Stek stir fry och blanda sedan ner friterad kyckling och OJ sås.
 1. Ät med ris.
