@@ -10,7 +10,7 @@
 * 1/2 - 1 buljongtärning
 
 ## 
-1. Skiva löken och stek tills gyllene, mjuck och söt. Under tiden skala och
+1. Skiva löken och stek tills gyllene, mjuk och söt. Under tiden skala och
    skiva äpplen.
 1. Ta löken ur pannan och lägg åt sidan.
 1. Stek skaven.
