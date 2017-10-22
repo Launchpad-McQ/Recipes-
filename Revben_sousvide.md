@@ -6,8 +6,8 @@
 1. Kyl revbenen med kallt vattenbad.
 
 ## Avsluta i ugn
-2. Rubba med mer rub/glaze. 
-2. 150 grader 40 min, tills fin skorpa
+3. Rubba med mer rub/glaze. 
+3. 150 grader 40 min, tills fin skorpa
 
 ## Alt. avsluta på grill
 3. Rubba med mer rub/glaze.
