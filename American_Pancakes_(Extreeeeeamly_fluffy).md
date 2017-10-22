@@ -18,7 +18,7 @@ bildats.
 smöret (28 g) och sedan den andra hälften av mjölken (125-150 g) och en gnutta
 vaniljessens.
 1. Vänd ner äggvitan i smeten.
-1. Stek och vänd närbubblor börjar bildas på ytan. De är klara då de är
+1. Stek och vänd när bubblor börjar bildas på ytan. De är klara då de är
 gyllenbruna.
 
 Inspirerat av http://www.canadianfamily.ca/food/best-pancake-recipe-ever/ 
