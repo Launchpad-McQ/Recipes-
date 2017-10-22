@@ -15,5 +15,5 @@
 * 30 ml Kakao
 * 1 Apelsins skal
 
-1. Blanda ut kakao med lite socker och lite mjölk så det blir en tjock smet och all
+  Blanda ut kakao med lite socker och lite mjölk så det blir en tjock smet och all
    kakao löses i vätskan.
