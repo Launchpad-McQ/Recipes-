@@ -1,7 +1,7 @@
 # Äppelpaj
 
 * 120 g (3 dl) Havregryn
-* 60 g (1 dl) Mjölk
+* 60 g (1 dl) Mjöl
 * 95 g (1 dl) Socker
 * 100 g Smör
 * Kanel
